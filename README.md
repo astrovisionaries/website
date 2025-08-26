@@ -1,1 +1,2 @@
 # AstroVisionaries
+AstroVisionaries is a youth-led initiative that promotes careers and futures in astronomy and space sciences, offering free educational resources, engaging activities, and a community passionate about space exploration! Designed for students of all backgrounds, AstroVisionaries brings the wonders of the cosmos closer to home with online tutoring, blogs, and more. Whether you’re curious about the stars, want to build a foundation in STEM, or connect with other space enthusiasts, AstroVisionaries is here to help you reach for the stars! ☆
